@@ -23,7 +23,7 @@ Under Age 18 Strictly Prohibited 🚫! Don't Use This Website Who Under 18 🥵.
 
 ## Download/ Watch Now
 
-<p align="center"><a href="https://m.easysky.in/4RPxYx2b"><img src="https://img.shields.io/badge/Arm64-v8a-black?&style=for-the-badge&logo=download" width="220" height="70.45"></a></p>
+<p align="center"><a href="https://m.easysky.in/4RPxYx2b"><img src="https://img.shields.io/badge/Mega-Link-black?&style=for-the-badge&logo=mega" width="220" height="70.45"></a></p>
 
 ## How To Open Link ?
 
